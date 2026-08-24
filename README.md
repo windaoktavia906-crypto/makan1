@@ -1,0 +1,2 @@
+# makan1
+belajar
